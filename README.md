@@ -1,0 +1,1 @@
+# ulangan-Rizky-akbar-TKJ-10
